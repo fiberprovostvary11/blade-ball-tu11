@@ -1,4 +1,4 @@
-
+blade ball advanced Scripts is the best blade ball Script, featuring aimbot and teleport. Safe and powerful for all your needs.
 
 
 
